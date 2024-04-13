@@ -3,7 +3,7 @@
 * [NudifyAI](https://nudify-ai.online/) - Rating: - (-/-)
 * [FantasyGF.AI](https://fantasygf.ai/generate-image) - Rating: - (-/-)
 * [DreamTime](https://www.dreamtime.tech/) - Rating: - (-/-)
-* [N8ked](https://www.n8ked.app/) - Rating: - (-/-)
+* [N8ked](https://www.n8ked.app/) - Rating: - (4.4/5)
 * [DeepNude](https://deepnude.cc/) - Rating: - (-/-)
 * [SukebeZone](https://www.sukebezone.com/) - Rating: - (-/-)
 * [Free Stable Diffusion](https://teletype.in/@hackfreaks/oBOsvUcck5D) - Rating: - (-/-)
